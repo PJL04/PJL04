@@ -11,4 +11,4 @@ Here are some information about me:
 - 🤔 I’m looking for help with ...
 -->
 - 💬 Ask me about anything
-- 📫 How to reach me: Discrod: PJL04#4424
+- 📫 How to reach me: Discrod - PJL04#4424
